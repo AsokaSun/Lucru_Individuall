@@ -1,0 +1,1 @@
+# Lucru_Individuall
